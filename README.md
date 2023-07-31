@@ -1,1 +1,2 @@
 # Story2
+# THIS IS NOT A STORY. THIS IS OUR LIFE.
